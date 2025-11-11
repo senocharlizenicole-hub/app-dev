@@ -1,7 +1,6 @@
 # My Favorite Series: Gilmore Girls
 
-![Gilmore Girls Poster](https://www.businessinsider.com/gilmore-girls-friends-with-my-kid-like-lorelai-2024-12)
-
+![Gilmore Girls Poster](https://screenrant.com/gilmore-girls-netflix-preview-photos/)
 ## Overview
 **Gilmore Girls** is a heartwarming dramedy series that follows the lives of **Lorelai** and **Rory Gilmore**, a mother-daughter duo living in the quirky town of **Stars Hollow**.  
 It explores family bonds, friendship, love, and the ups and downs of daily life.
