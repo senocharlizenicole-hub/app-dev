@@ -1,6 +1,6 @@
 # My Favorite Series: Gilmore Girls
 
-![Gilmore Girls Poster](https://ew.com/tv/gilmore-girls-rory-lorelai-friendship/?srsltid=AfmBOooCnH_rb5DhZDFPUmfayEa3xxVEYTw8u)
+![Gilmore Girls Poster](https://www.people.com/gilmore-girls-anniversary-ways-to-celebrate-11824343)
 
 ## Overview
 **Gilmore Girls** is a heartwarming dramedy series that follows the lives of **Lorelai** and **Rory Gilmore**, a mother-daughter duo living in the quirky town of **Stars Hollow**.  
