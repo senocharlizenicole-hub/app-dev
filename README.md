@@ -1,6 +1,6 @@
 # My Favorite Series: Gilmore Girls
 
-![Gilmore Girls Poster]https://upload.wikimedia.org/wikipedia/en/0/0b/Gilmore_Girls_title_card.jpg)
+![Gilmore Girls Poster](https://upload.wikimedia.org/wikipedia/en/0/0b/Gilmore_Girls_title_card.jpg)
 
 ## Overview
 **Gilmore Girls** is a heartwarming dramedy series that follows the lives of **Lorelai** and **Rory Gilmore**, a mother-daughter duo living in the quirky town of **Stars Hollow**.  
