@@ -1,6 +1,6 @@
 # My Favorite Series: Gilmore Girls
 
-![Gilmore Girls Poster](https://screenrant.com/gilmore-girls-netflix-preview-photos/)
+![Gilmore Girls Poster](https://upload.wikimedia.org/wikipedia/commons/1/6f/Gilmore_Girls_Studio.jpg)
 ## Overview
 **Gilmore Girls** is a heartwarming dramedy series that follows the lives of **Lorelai** and **Rory Gilmore**, a mother-daughter duo living in the quirky town of **Stars Hollow**.  
 It explores family bonds, friendship, love, and the ups and downs of daily life.
