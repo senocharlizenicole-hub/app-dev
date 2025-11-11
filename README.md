@@ -1,6 +1,7 @@
 # My Favorite Series: Gilmore Girls ☕📚
 
 ![Gilmore Girls Poster](Gilmore%20girls.png)
+
 ## 📖 Overview
 **Gilmore Girls** is a heartwarming dramedy series that follows the lives of **Lorelai** and **Rory Gilmore**, a mother-daughter duo living in the quirky town of **Stars Hollow**.  
 It explores family bonds, friendship, love, and the ups and downs of daily life.
@@ -21,8 +22,7 @@ It explores family bonds, friendship, love, and the ups and downs of daily life.
 5. Luke Danes  
 
 ## 🍵 My Favorite Moment
-The **Stars Hollow Festival scenes** — always full of quirky characters, laughs, and heartwarming moments.
-
+The **"You jump, I jump, Jack" scene** — an unforgettable moment showing Rory and Logan's adventurous and daring side, full of tension, emotion, and connection.
 ---
 
 *Coffee and conversation forever ☕*
