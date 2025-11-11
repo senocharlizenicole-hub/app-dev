@@ -1,6 +1,6 @@
 # My Favorite Series: Gilmore Girls
 
-![Gilmore Girls Poster](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.cinematerial.com%2Ftv%2Fgilmore-girls-i238784%2Fp%2Femeurzij&psig=AOvVaw3IM91vRSe8tnKvTRUJY1V0&ust=1762952562483000&source=images&cd=vfe&opi=89978449&ved=0CBUQjRxqFwoTCJjDx52U6pADFQAAAAAdAAAAABAp)
+![Gilmore Girls Poster](https://ew.com/tv/gilmore-girls-rory-lorelai-friendship/?srsltid=AfmBOooCnH_rb5DhZDFPUmfayEa3xxVEYTw8u)
 
 ## Overview
 **Gilmore Girls** is a heartwarming dramedy series that follows the lives of **Lorelai** and **Rory Gilmore**, a mother-daughter duo living in the quirky town of **Stars Hollow**.  
